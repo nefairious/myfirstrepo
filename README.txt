@@ -35,3 +35,8 @@ I hope I have not in too late a day touched the beautiful mythology of Greece, a
 
 Teignmouth,
 April 10, 1818.
+
+Essay
+The Great Figure: On Figurative Language
+by D. A. Powell
+If rhythm is the heart and breath of poetry, then surely figurative language is its beguiling and sexy skin and musculature....[W]hether we're reading Homer or Williams or a contemporary poet, the figure is what carries us rumbling through the dark. Without it, the poem is simply a mass of words, a clanging that does not move us.
